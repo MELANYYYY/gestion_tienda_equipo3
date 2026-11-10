@@ -1,0 +1,1 @@
+# Gesti-n-de-Comercializaci-n-e-Inventario-en-Tienda
